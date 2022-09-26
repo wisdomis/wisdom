@@ -1,2 +1,6 @@
 # wisdom
-hhh... about_wisdom
+H1 CBU
+
+Team - Book Review SL
+
+
